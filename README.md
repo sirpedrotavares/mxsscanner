@@ -11,6 +11,8 @@ For a massive URLs file:
 
 ![alt tag](http://blog.seguranca-informatica.pt/wp-content/uploads/2015/06/top.png)
 
+More information, please accesses: http://seguranca-informatica.pt
+
 
 
 
